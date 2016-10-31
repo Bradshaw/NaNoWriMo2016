@@ -19,3 +19,4 @@ I slump down on the grass, try to prop my head against the tree stump. There's U
    
 Maybe that's why I'm sort of out of it now. This DJ is shit. Accidentally sticking his tongue into nostrils or something.   
    
+I'd like to fuck her. She's hot, I think. She was dancing. I liked that. She got pretty close to me too. I think she was just trying to get closer to the speakers too. Or maybe she's into me? I could totally fuck her. She's probably going to come out here at some point, sit next to me and start kissing me.
