@@ -13,4 +13,6 @@ I walk outside. Chill hits my chest, I was sweating in there. I unwrap the sweat
 "Hey"  
 Kreug looks up, he's got that stupid grin on his face. I can't remember what he takes, probably some mix of pills.   
 "Oh, hey. So, you going to fuck her?"  
-Fuck you, Kreug. "I don't know, Kreug, she's high as fuck."
+Fuck you, Kreug. "I don't know, Kreug, she's high as fuck."   
+   
+I slump down on the grass, try to prop my head against the tree stump. There's Ursa Major, I think. The one with the three stars in a row is Ursa Major, right? I like how precise the light from stars are. No clouds, we're shielded by the hills, not too much light pollution from the city. My ears feel like they're in a pillow, everything sounds a little numb. The ground has a little vibration to it on each kick.
