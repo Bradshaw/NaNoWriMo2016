@@ -11,4 +11,6 @@ Fuck it.
 I walk outside. Chill hits my chest, I was sweating in there. I unwrap the sweater from my fist and slip it on. Where's Kreug?   
    
 "Hey"  
-Kreug looks up, he's got that stupid grin on his face. I can't remember what he takes, probably some mix of pills.
+Kreug looks up, he's got that stupid grin on his face. I can't remember what he takes, probably some mix of pills.   
+"Oh, hey. So, you going to fuck her?"  
+Fuck you, Kreug. "I don't know, Kreug, she's high as fuck."
