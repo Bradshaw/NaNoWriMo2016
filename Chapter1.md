@@ -24,4 +24,8 @@ I'd like to fuck her. She's hot, I think. She was dancing. I liked that. She got
 Wait, where would we go? The bushes? Not the fucking toilets, the floor is covered in piss in there.   
    
 "I'm going back in" Kreug is standing, towering above me. "You know where the others are?"  
-Cel was dancing with an old friend, I don't know him. Paul and Giger slipped out at one point, I think they found someone to sell them shrooms. Beck was probably near me when the girl was trying to talk to me, but I wasn't paying attention.
+Cel was dancing with an old friend, I don't know him. Paul and Giger slipped out at one point, I think they found someone to sell them shrooms. Beck was probably near me when the girl was trying to talk to me, but I wasn't paying attention.  
+"No, they're in there somewhere."  
+"This DJ is shit"  
+"Yeah... I think his set is almost over though"
+"I hope so"
