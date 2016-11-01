@@ -1,7 +1,7 @@
 # Chapter One
 
 Her mouth shoved right into my ear, "I'm so high right now that I can see the music".  
-Oh, so that's what's she's been trying to say. I guess trying to get anything meaningful out of someone when you're standing in front of a set of speakers isn't a great idea. I'll never learn though. I wonder what it's like to be so high that you can see the music.  
+Oh, so that's what's she's been trying to say. I guess trying to get anything meaningful out of someone when you're standing in front of a set of speakers isn't a great idea. I'll never learn though.  
 I throw her a smile, she doesn't need to know I don't take drugs. Everyone takes drugs here, it's just assumed.   
   
 I move back toward the speaker, stick my head almost inside it, and try to get back into the flow. This DJ is shit though, not that I could do better, but there's a reason I'm not standing on the stage. The tune is good, but I can hear the off-tempo drums in the back as he cack-handedly fumbles around trying to line up the transition.   
@@ -37,4 +37,7 @@ I pull myself up. Kreug is still towering above me, his long skinny body puts hi
 As we walk back inside the building, I pre-emptively take my sweater off, grab one of the sleeves, start wrapping it around my hand, then when it's all bundled up, I tuck the other sleeve in and push it into my fist. I wonder where everyone else puts their clothes when they're dancing. I do this wrapping thing, I probably look like MegaMan, or a kid pretending to be MegaMan. We cross the threshold, I can feel the ground trembling under my feet, I'm probably imagining that, right? It's loud.  
 The DJ is in a sort of nest, all around him there are painted canvases, probably some kind of special paint that's meant to light up properly under the black lights. The nest is tucked in the corner between two large speaker stacks. The room is emptier than before, but people are still pushed up to the bass bins, doing the obligatory side-to-side raver-bounce dance. There are more speaker stacks, a few lined up against one of the walls, one in each other corner, some extra bass bins have people sitting on them.  
 A second person enters the nest, taps the DJ on the shoulder, they nod to each other. A few minutes later the handoff is done.  
-The new DJ has moved the sound onto a low rumble, no drums, no melody, at first. A distorted voice is talking about aliens, something implying that they will soon contact us and share some cosmic knowledge that will change humanity forever. As the monologue goes on, synth stabs gradually build up into something ressembling a tune. 
+The new DJ has moved the sound onto a low rumble, no drums, no melody, at first. A distorted voice is talking about aliens, something implying that they will soon contact us and share some cosmic knowledge that will change humanity forever. As the monologue goes on, synth stabs gradually build up into something ressembling a tune. This track is going to be good. I push my way to the speaker in the corner, put my head in the horn of the subwoofer, and grab hold onto it with my free hand. I close my eyes, my t-shirt is shivering on my shoulders.  
+"And with their help, we will become gods"   
+   
+The music tears into me, each kick drum compressing my skull
