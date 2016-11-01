@@ -30,4 +30,4 @@ Cel was dancing with an old friend, I don't know him. Paul and Giger slipped to 
 "Yeah... I think his set is almost over though"  
 "I hope so"   
    
-I pull myself up. Kreug is still towering above me, his long skinny body puts his shoulders above my eyeline. He scans around, I imagine a searchlight coming out of his face, like a guard tower.
+I pull myself up. Kreug is still towering above me, his long skinny body puts his shoulders above my eyeline. He scans around, I imagine a searchlight coming out of his face, like a guard tower. What's he looking at? There are quite a lot of people outside. They'll move back indoors when the next DJ starts. We can get a nice spot near the speakers if we go in now.
