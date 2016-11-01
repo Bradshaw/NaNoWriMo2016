@@ -21,4 +21,7 @@ Maybe that's why I'm sort of out of it now. This DJ is shit. Accidentally sticki
    
 I'd like to fuck her. She's hot, I think. She was dancing. I liked that. She got pretty close to me too. I think she was just trying to get closer to the speakers too. Or maybe she's into me? I could totally fuck her. She's probably going to come out here at some point, sit next to me and start kissing me. I'd move one hand up to her face, with her cheek nestled in my palm and my fingers holding the back of her neck. I guide her towards me, we're breathing into each other's mouths, her chest pushes up against mine, her leg moves forward and brushes against my dick. I hadn't realised how hard I'd gotten already. Suddenly I feel her hand feeling towards my crotch. She moves out from the kiss just a second, a smirk on her lips. She takes my hand and...
    
-Wait, where would we go? The bushes? Not the fucking toilets, the floor is covered in piss in there.
+Wait, where would we go? The bushes? Not the fucking toilets, the floor is covered in piss in there.   
+   
+"I'm going back in" Kreug is standing, towering above me. "You know where the others are?"  
+Cel was dancing with an old friend, I don't know him. Paul and Giger slipped out at one point, I think they found someone to sell them shrooms.
