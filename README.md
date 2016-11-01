@@ -5,3 +5,7 @@ This is an entry to NaNoWriMo 2016, I will be writing (hopefully) 50'000 words o
 ## The Story
 
 As it stands, I don't know what the story is going to be about yet. Maybe a little bit of techfear, music, sexual frustration, badthoughts, and other random stuff...
+
+## Chapters
+
+[Chapter One](Chapter1.md)
