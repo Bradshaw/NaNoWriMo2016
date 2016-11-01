@@ -34,4 +34,4 @@ I pull myself up. Kreug is still towering above me, his long skinny body puts hi
 "Go?"  
 "Go"   
 
-As we walk back inside the building, I pre-emptively take my sweater off, grab one of the sleeves, start wrapping it around my hand, then when it's all bundled up, I tuck the other sleeve in and push it into my fist. I wonder where everyone else puts their clothes when they're dancing
+As we walk back inside the building, I pre-emptively take my sweater off, grab one of the sleeves, start wrapping it around my hand, then when it's all bundled up, I tuck the other sleeve in and push it into my fist. I wonder where everyone else puts their clothes when they're dancing.
