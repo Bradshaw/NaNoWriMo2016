@@ -27,5 +27,7 @@ Wait, where would we go? The bushes? Not the fucking toilets, the floor is cover
 Cel was dancing with an old friend, I don't know him. Paul and Giger slipped out at one point, I think they found someone to sell them shrooms. Beck was probably near me when the girl was trying to talk to me, but I wasn't paying attention.  
 "No, they're in there somewhere."  
 "This DJ is shit"  
-"Yeah... I think his set is almost over though"
-"I hope so"
+"Yeah... I think his set is almost over though"  
+"I hope so"   
+   
+I pull myself up. Kreug is still towering above me, his long skinny body puts his shoulders above my eyeline.
